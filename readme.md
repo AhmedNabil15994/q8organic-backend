@@ -1,3 +1,3 @@
-## About Dukan Project
+## About Q8Organic Project
 
-Dukan Ecommerce Project
+Providing everything that interests farmers from the best reliable sources.
